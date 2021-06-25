@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @OsumeP
+- 👀 I’m interested in anime, videogames, programation, play instruments and a lot more ΦωΦ
+- 🌱 I’m currently learning.
